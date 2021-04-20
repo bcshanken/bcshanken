@@ -7,7 +7,7 @@ Software engineer with a proven ability to effectively communicate with clients,
 
 👀 View my portfolio here: [Portfolio](https://bcshanken.github.io/Portfolio/)
 
-📝 Check my resume out here: [Jason's Resume](https://drive.google.com/file/d/1BUsgP21PJr3tjkau7g0JtZVtckYvfme6/view?usp=sharing)
+📝 Check my resume out here: [Brian's Resume](https://drive.google.com/file/d/1BUsgP21PJr3tjkau7g0JtZVtckYvfme6/view?usp=sharing)
 
 💬 Message me here: [Linkedin](https://www.linkedin.com/in/brian-shanken/)
 
